@@ -3,6 +3,7 @@
 Grafik Tasarımı çok severim
 
 |Rainbow Six Siege|
+
 arkadaşlarımla oynadığım oyun
 ![ela-r6 (1)](https://github.com/ikliim/ikliim/assets/159884785/fb8a2225-aef7-41fd-967c-9e001f4f1709)
 
