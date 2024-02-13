@@ -1,4 +1,4 @@
-### Hi there 👋
+### Merhaba Celil Hocam 👋
  
 Grafik Tasarımı çok severim
 
