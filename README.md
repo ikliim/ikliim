@@ -1,17 +1,12 @@
 ### Hi there 👋
+ 
+Grafik Tasarımı çok severim
 
-<!--
-**ikliim/ikliim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+|Rainbow Six Siege|
+arkadaşlarımla oynadığım oyun
 ![ela-r6 (1)](https://github.com/ikliim/ikliim/assets/159884785/fb8a2225-aef7-41fd-967c-9e001f4f1709)
+
+En sevdiğim SporArabasi
+![image](https://github.com/ikliim/ikliim/assets/159884785/313d06d1-da0a-4f67-a3f7-3b8866aea856)
+
+Celil Hocam sizi seviyoruz <3
